@@ -2,7 +2,7 @@
 
 DI susun oleh : 
 1. sarlinda sopalatu (105841101423)
-2. hasriana (105841107323)
+2. hasriana (105841107623)
 
 Bagian 1 - analisis masalah
 
